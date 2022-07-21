@@ -1,1 +1,1 @@
-eita coisinha linda
+Ó céus, que instrumento diminuto de lindeza admirável!
